@@ -8,14 +8,14 @@ return `PAYMENT BY ZEEONE OFC
 		
 *さ E-MONEY*
 1. GOPAY
-	ㅁ 0887 4350 47326
-		• ZE**** **C
+	ㅁ MINTA OWNER KAK
+		• 
 2. OVO
-	ㅁ 0887 4350 47326
-		• EL*****TI
+	ㅁ 085950471442
+		• TZ**IN
 3. DANA
-	ㅁ 0887 4350 47326
-		• ZE**** **C
+	ㅁ 0857 9832 466
+		• TZ**IN
 
 *さ PULSA*
 
